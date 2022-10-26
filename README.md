@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @MuddyNuggets
 - 👀 I’m interested in art, writing, and reading.
 - 🌱 I’m currently learning basic High Schooler stuff.
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on nothing at the moment.
 - 📫 How to reach me email rivlinside@gmail.com
 
 <!---
